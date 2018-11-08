@@ -1,4 +1,4 @@
-## [An Introduction to Computer Science Using Java](http://ntci.on.ca/compsci/java/)
+# [An Introduction to Computer Science Using Java](http://ntci.on.ca/compsci/java/)
 
 * Chapter 1
     * [1.1 Introduction](Chapter%201/1.1%20Introduction.md)

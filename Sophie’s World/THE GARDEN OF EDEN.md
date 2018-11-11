@@ -4,17 +4,17 @@
 
 Sophie Amundsen **was on her way home**(在她回家的路上) from school. She had walked the first part of the way with Joanna. They had been **discuss**ing(讨论) **robot**s(机器人). Joanna thought the human **brain**(大脑) was **like**(相似的) an **advanced**(高级的) computer. Sophie was not **certain**(确定的) she **agree**d(同意). **Surely**(确实地) a person was more than a **piece**(块；片) of **hardware**(硬件)?
 
-When they got to the **supermarket**(超级市场) they went their **separate**(分开的) ways. Sophie lived on the **outskirt**s(外围) of a **sprawling**(杂乱无章的) **suburb**(郊区) and had almost **twice**(两倍) **as** far to school **as**(as ... as 像 ... 一样) Joanna. There were no other houses **beyond**(超出…之外) her **garden**(花园), which made it **seem as if**(似乎好像) her house lay at the end of the world. This was where the woods began.
+When they got to the **supermarket**(超级市场) they went their **separate**(分开的) ways. Sophie lived on the **outskirt**s(外围) of a **sprawling**(杂乱无章的) **suburb**(郊区) and had almost **twice**(两倍) **as** far to school **as**(as ... as 像 ... 一样) Joanna. There were no other houses **beyond**(超出…之外) her **garden**(花园), which made it **seem as if**(似乎好像) her house lay(lie 的过去式，位于) at the **end**(尽头) of the world. This was where the **woods**(森林；树林) began.
 
-She turned the corner into Clover Close. At the end of the road there was a sharp bend, known as Captain’s Bend. People seldom went that way except on the weekend.
+She **turned the corner**(转了个弯) into **Clover**(三叶草；苜蓿) **Close**(死胡同). At the **end** of the road there was a **sharp bend**(急转弯), known as Captain’s Bend. People **seldom**(很少) went that way **except**(除了) on the weekend.
 
-It was early May. In some of the gardens the fruit trees were encircled with dense clusters of daffodils. The birches were already in pale green leaf.
+It was early May. In some of the gardens the fruit trees were **encircle**d(围绕) with **dense**(密集的) **cluster**s(簇；丛) of **daffodil**s(水仙花). The **birch**es(桦树) were already in **pale green**(嫩绿的) leaf.
 
-It was extraordinary how everything burst forth at this time of year! What made this great mass of green vegetation come welling up from the dead earth as soon as it got warm and the last traces of snow disappeared?
+It was **extraordinary**(非凡的；奇妙的) how everything **burst forth**(忽然发生) at this time of year! What made this **great mass of**(千千万万的) green **vegetation**(植物) come **welling up**(well up 涌出) from the dead earth as soon as it got warm and the last **trace**s(痕迹) of snow **disappear**ed(消失)?
 
-As Sophie opened her garden gate, she looked in the mailbox. There was usually a lot of junk mail and a few big envelopes for her mother, a pile to dump on the kitchen table before she went up to her room to start her homework.
+As Sophie opened her garden gate, she looked in the **mailbox**(邮箱). There was usually a lot of **junk**(垃圾) mail and a few big **envelope**s(信封) for her mother, a **pile**(堆) to **dump**(倾倒) on the **kitchen**(厨房) table before she went up to her room to start her homework.
 
-From time to time there would be a few letters from the bank for her father, but then he was not a normal father. Sophie’s father was the captain of a big oil tanker, and was away for most of the year. During the few weeks at a time when he was at home, he would shuffle around the house making it nice and cozy for Sophie and her mother. But when he was at sea he could seem very distant.
+**From time to time**(有时；不时) there would be a few letters from the **bank**(银行) for her father, **but then**(然而) he was not a **normal**(普通的) father. Sophie’s father was the **captain**(船长) of a big oil tanker(油轮), and was away for most of the year. **During**(在...的时候) the **few**(很少的；不多的) weeks at a time when he was at home, he would **shuffle**(移来移去) around the house making it nice and **cozy**(舒适的) for Sophie and her mother. But when he was at sea he could seem very **distant**(遥远的).
 
 There was only one letter in the mailbox—and it was for Sophie. The white envelope read: “Sophie Amundsen, 3 Clover Close.” That was all; it did not say who it was from. There was no stamp on it either.
 

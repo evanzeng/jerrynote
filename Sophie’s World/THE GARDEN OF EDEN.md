@@ -4,7 +4,7 @@
 
 Sophie Amundsen **was on her way home**(在她回家的路上) from school. She had walked the first part of the way with Joanna. They had been **discuss**ing(讨论) **robot**s(机器人). Joanna thought the human **brain**(大脑) was **like**(相似的) an **advanced**(高级的) computer. Sophie was not **certain**(确定的) she **agree**d(同意). **Surely**(确实地) a person was more than a **piece**(块；片) of **hardware**(硬件)?
 
-When they got to the supermarket they went their separate ways. Sophie lived on the outskirts of a sprawling suburb and had almost twice as far to school as Joanna. There were no other houses beyond her garden, which made it seem as if her house lay at the end of the world. This was where the woods began.
+When they got to the **supermarket**(超级市场) they went their **separate**(分开的) ways. Sophie lived on the **outskirt**s(外围) of a **sprawling**(杂乱无章的) **suburb**(郊区) and had almost **twice**(两倍) **as** far to school **as**(as ... as 像 ... 一样) Joanna. There were no other houses **beyond**(超出…之外) her **garden**(花园), which made it **seem as if**(似乎好像) her house lay at the end of the world. This was where the woods began.
 
 She turned the corner into Clover Close. At the end of the road there was a sharp bend, known as Captain’s Bend. People seldom went that way except on the weekend.
 

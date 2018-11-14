@@ -6,7 +6,7 @@ Sophie Amundsen **was on her way home**(在她回家的路上) from school. She 
 
 When they got to the **supermarket**(超级市场) they went their **separate**(分开的) ways. Sophie lived on the **outskirt**s(外围) of a **sprawling**(杂乱无章的) **suburb**(郊区) and had almost **twice**(两倍) **as** far to school **as**(as ... as 像 ... 一样) Joanna. There were no other houses **beyond**(超出…之外) her **garden**(花园), which made it **seem as if**(似乎好像) her house lay(lie 的过去式，位于) at the **end**(尽头) of the world. This was where the **woods**(森林；树林) began.
 
-She **turned the corner**(转了个弯) into **Clover**(三叶草；苜蓿) **Close**(死胡同). At the **end** of the road there was a **sharp bend**(急转弯), known as Captain’s Bend. People **seldom**(很少) went that way **except**(除了) on the weekend.
+She **turned the corner**(转了个弯) into **Clover**(三叶草；苜蓿) **Close**(死胡同)(Clover Close 苜蓿巷). At the **end** of the road there was a **sharp bend**(急转弯), known as Captain’s Bend. People **seldom**(很少) went that way **except**(除了) on the weekend.
 
 It was early May. In some of the gardens the fruit trees were **encircle**d(围绕) with **dense**(密集的) **cluster**s(簇；丛) of **daffodil**s(水仙花). The **birch**es(桦树) were already in **pale green**(嫩绿的) leaf.
 
@@ -16,11 +16,11 @@ As Sophie opened her garden gate, she looked in the **mailbox**(邮箱). There w
 
 **From time to time**(有时；不时) there would be a few letters from the **bank**(银行) for her father, **but then**(然而) he was not a **normal**(普通的) father. Sophie’s father was the **captain**(船长) of a big oil tanker(油轮), and was away for most of the year. **During**(在...的时候) the **few**(很少的；不多的) weeks at a time when he was at home, he would **shuffle**(移来移去) around the house making it nice and **cozy**(舒适的) for Sophie and her mother. But when he was at sea he could seem very **distant**(遥远的).
 
-There was only one letter in the mailbox—and it was for Sophie. The white envelope read: “Sophie Amundsen, 3 Clover Close.” That was all; it did not say who it was from. There was no stamp on it either.
+There was only one letter in the **mailbox** — and it was for Sophie. The white **envelope** read: “Sophie Amundsen, 3 **Clover Close**.” That was all; it did not say who it was from. There was no **stamp**(邮票) on it **either**(也（用于否定句中）).
 
-As soon as Sophie had closed the gate behind her she opened the envelope. It contained only a slip of paper no bigger than the envelope. It read: Who are you?
+**As soon as**(一...就) Sophie had closed the gate behind her she opened the **envelope**. It **contain**ed(包含) only **a slip of**(一张) paper no bigger than the **envelope**. It read: *Who are you?*
 
-Nothing else, only the three words, written by hand, and followed by a large question mark.
+Nothing else, only the three words, written by hand, and **follow**ed(跟随) by a large **question mark**(问号).
 
 She looked at the envelope again. The letter was definitely for her. Who could have dropped it in the mailbox?
 

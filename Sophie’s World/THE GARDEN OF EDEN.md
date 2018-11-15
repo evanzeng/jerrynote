@@ -22,37 +22,37 @@ There was only one letter in the **mailbox** — and it was for Sophie. The whit
 
 Nothing else, only the three words, written by hand, and **follow**ed(跟随) by a large **question mark**(问号).
 
-She looked at the envelope again. The letter was definitely for her. Who could have dropped it in the mailbox?
+She looked at the **envelope** again. The letter was **definitely**(明确无疑地) for her. Who could have **drop**ped(放下) it in the **mailbox**?
 
-Sophie let herself quickly into the red house. As always, her cat Sherekan managed to slink out of the bushes, jump onto the front step, and slip in through the door before she closed it behind her.
+Sophie let herself quickly into the red house. As always, her cat Sherekan **managed to**(manage to 设法) **slink**(鬼鬼祟祟地走) out of the **bush**es(矮树丛), jump onto the front step, and **slip in**(溜进) **through**(通过) the door before she closed it behind her.
 
-Whenever Sophie’s mother was in a bad mood, she would call the house they lived in a menagerie. A menagerie was a collection of animals. Sophie certainly had one and was quite happy with it. It had begun with the three goldfish, Goldtop, Red Ridinghood, and Black Jack. Next she got two budgerigars called Smitt and Smule, then Govinda the tortoise, and finally the marmalade cat Sherekan. They had all been given to her to make up for the fact that her mother never got home from work until late in the afternoon and her father was away so much, sailing all over the world.
+**Whenever**(每当) Sophie’s mother was in a bad **mood**(心情), she would call the house they lived in a **menagerie**(小动物园). A menagerie was a **collection**(一群) of animals. Sophie certainly had one and was **quite**(相当) happy with it. It had begun with the three **goldfish**(金鱼), Goldtop, Red Ridinghood, and Black Jack. Next she got two **budgerigar**s(虎皮鹦鹉) called Smitt and Smule, then Govinda the **tortoise**(龟), and **finally**(最后) the **marmalade**(橘子酱色的) cat Sherekan. They had all been given to her to **make up for**(补偿) the fact that her mother never got home from work until late in the afternoon and her father was away so much, **sail**ing(航行) all over the world.
 
-Sophie slung her schoolbag on the floor and put a bowl of cat food out for Sherekan. Then she sat down on a kitchen stool with the mysterious letter in her hand.
+Sophie **slung**(sling 投掷) her schoolbag on the **floor**(地板) and put a **bowl**(碗) of cat food out for Sherekan. Then she sat down on a **kitchen**(厨房) **stool**(凳子) with the **mysterious**(神秘的) letter in her hand.
 
-Who are you?
+*Who are you?*
 
-She had no idea. She was Sophie Amundsen, of course, but who was that? She had not really figured that out—yet.
+She **had no idea**(have no idea 不知道). She was Sophie Amundsen, **of course**(当然), but who was that? She had not **really**(真正地) **figured that out**(figure out 想出) — **yet**(（用于否定句和疑问句，谈论尚未发生但可能发生的事）还，尚).
 
-What if she had been given a different name? Anne Knutsen, for instance. Would she then have been someone else?
+What if she had been given a **different**(不同的) name? Anne Knutsen, **for instance**(例如). Would she then have been someone else?
 
-She suddenly remembered that Dad had originally wanted her to be called Lillemor. Sophie tried to imagine herself shaking hands and introducing herself as Lillemor Amundsen, but it seemed all wrong. It was someone else who kept introducing herself.
+She **suddenly**(突然) remembered that Dad had **originally**(本来；原来) wanted her to be called Lillemor. Sophie tried to **imagine**(想象) herself **shaking hands**(shake hands 握手) and **introducing**(introduce 介绍) herself as Lillemor Amundsen, but it **seem**ed(看起来；似乎) all **wrong**(错误的). It was someone else who **kept introducing**(keep doing 一直做) herself.
 
-She jumped up and went into the bathroom with the strange letter in her hand. She stood in front of the mirror and stared into her own eyes.
+She jumped up and went into the bathroom with the strange letter in her hand. She stood in front of the **mirror**(镜子) and **stare**d(注视；瞪视) into her own eyes.
 
 “I am Sophie Amundsen,” she said.
 
-The girl in the mirror did not react with as much as a twitch. Whatever Sophie did, she did exactly the same. Sophie tried to beat her reflection to it with a lightning movement but the other girl was just as fast.
+The girl in the **mirror** did not **react**(反应) with as much as a **twitch**(颤动). **Whatever**(无论什么) Sophie did, she did **exactly**(完全地) the same. Sophie tried to **beat**(打败) her **reflection**(镜像) to it with a **lightning**(闪电的) **movement**(运动；移动) but the other girl was just as fast.
 
 “Who are you?” Sophie asked.
 
-She received no response to this either, but felt a momentary confusion as to whether it was she or her reflection who had asked the question.
+She **receive**d(收到；得到) no **response**(反应；回答) to this **either**, but **felt**(feel) a **momentary**(瞬间的) **confusion**(困惑) **as to**(关于) whether it was she or her **reflection** who had asked the question.
 
-Sophie pressed her index finger to the nose in the mirror and said, “You are me.”
+Sophie **press**ed(压；按) her **index finger**(食指) to the nose in the **mirror** and said, “You are me.”
 
-As she got no answer to this, she turned the sentence around and said, “I am you.”
+**As**(因为) she got no answer to this, she turned the **sentence**(句子) around(turn...around 将...反转过来) and said, “I am you.”
 
-Sophie Amundsen was often dissatisfied with her appearance. She was frequently told that she had beautiful almond-shaped eyes, but that was probably just something people said because her nose was too small and her mouth was a bit too big. And her ears were much too close to her eyes. Worst of all was her straight hair, which it was impossible to do anything with. Sometimes her father would stroke her hair and call her “the girl with the flaxen hair,” after a piece of music by Claude Debussy. It was all right for him, he was not condemned to living with this straight dark hair. Neither mousse nor styling gel had the slightest effect on Sophie’s hair. Sometimes she thought she was so ugly that she wondered if she was malformed at birth. Her mother always went on about her difficult labor. But was that really what determined how you looked?
+Sophie Amundsen was often **dissatisfied**(不满的) with her **appearance**(外表). She was frequently told that she had beautiful almond-shaped eyes, but that was probably just something people said because her nose was too small and her mouth was a bit too big. And her ears were much too close to her eyes. Worst of all was her straight hair, which it was impossible to do anything with. Sometimes her father would stroke her hair and call her “the girl with the flaxen hair,” after a piece of music by Claude Debussy. It was all right for him, he was not condemned to living with this straight dark hair. Neither mousse nor styling gel had the slightest effect on Sophie’s hair. Sometimes she thought she was so ugly that she wondered if she was malformed at birth. Her mother always went on about her difficult labor. But was that really what determined how you looked?
 
 Wasn’t it odd that she didn’t know who she was? And wasn’t it unreasonable that she hadn’t been allowed to have any say in what she would look like? Her looks had just been dumped on her. She could choose her own friends, but she certainly hadn’t chosen herself. She had not even chosen to be a human being.
 
